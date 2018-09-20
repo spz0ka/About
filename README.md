@@ -1,2 +1,2 @@
 # spz0ka
-Information about me.
+Hey guys!
